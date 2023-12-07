@@ -16,7 +16,6 @@
 
 ![Alt text](image-2.png)
 
-## agora navegue e seja feliz
 
 
 #ByGio404
